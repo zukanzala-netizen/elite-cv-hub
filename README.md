@@ -52,7 +52,6 @@ elite-cv-hub/
 
  📞 Contact
 
-WhatsApp: 07XXXXXXXX
 Email: [info@elitecvhub.co.ke](elitecvhub66@gmail.com)
 
 (for business inquiries only)
